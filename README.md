@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Luckyy84
+- 🌱 I’m currently learning to code mods for subnautica 
+- 📫 How to reach me: you can reach me on discord : luckyy884
+- 😄 Pronouns: He/him
